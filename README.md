@@ -3,3 +3,4 @@
 - [Exploiting Opportunities or Exploiting Yourself? The Hidden Dangers of Burnout](https://jyotirgamya.org/article/hidden-dangers-burnout/)
 - [How To Recover From Burnout](https://jyotirgamya.org/article/fallout-toxic-leadership-story-burnout-redemption/)
 - [Burnout Prevention Strategies](https://jyotirgamya.org/opinion/managing-burnout/)
+- [How To Beat Burnout Exhaustion And Stress](https://jyotirgamya.org/opinion/best-burnout-tips/)
