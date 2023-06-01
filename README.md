@@ -5,3 +5,4 @@
 - [Burnout Prevention Strategies](https://jyotirgamya.org/opinion/managing-burnout/)
 - [How To Beat Burnout Exhaustion And Stress](https://jyotirgamya.org/opinion/best-burnout-tips/)
 - [Addressing Burnout In The Behavioral Health Workforce Through Organizational Strategies](https://jyotirgamya.org/opinion/burnout-management-system/)
+- [Grant Cordone's 10X Rule for Success](https://jyotirgamya.org/opinion/10x-rule-alternatives/)
