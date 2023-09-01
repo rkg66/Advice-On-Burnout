@@ -7,3 +7,4 @@
 - [Addressing Burnout In The Behavioral Health Workforce Through Organizational Strategies](https://jyotirgamya.org/opinion/burnout-management-system/)
 - [Grant Cordone's 10X Rule for Success](https://jyotirgamya.org/opinion/10x-rule-alternatives/)
 - [How to Manage Burnout: Strategies for a Healthier Work-Life Balance](https://jyotirgamya.org/article/how-to-manage-burnout/)
+- [How Do You Deal With Remote Work Burnout](https://jyotirgamya.org/opinion/remote-work-burnout/)
