@@ -8,3 +8,4 @@
 - [Grant Cordone's 10X Rule for Success](https://jyotirgamya.org/opinion/10x-rule-alternatives/)
 - [How to Manage Burnout: Strategies for a Healthier Work-Life Balance](https://jyotirgamya.org/article/how-to-manage-burnout/)
 - [How Do You Deal With Remote Work Burnout](https://jyotirgamya.org/opinion/remote-work-burnout/)
+- [What is the Servant Leadership Strategy](https://jyotirgamya.org/opinion/servant-leadership-strategy/)
