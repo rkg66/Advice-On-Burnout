@@ -9,3 +9,4 @@
 - [How to Manage Burnout: Strategies for a Healthier Work-Life Balance](https://jyotirgamya.org/article/how-to-manage-burnout/)
 - [How Do You Deal With Remote Work Burnout](https://jyotirgamya.org/opinion/remote-work-burnout/)
 - [What is the Servant Leadership Strategy](https://jyotirgamya.org/opinion/servant-leadership-strategy/)
+- [Perfectionism Vs Servant Leadership](https://jyotirgamya.org/opinion/perfectionism-servant-leadership-balance/)
