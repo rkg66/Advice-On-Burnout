@@ -10,3 +10,4 @@
 - [How Do You Deal With Remote Work Burnout](https://jyotirgamya.org/opinion/remote-work-burnout/)
 - [What is the Servant Leadership Strategy](https://jyotirgamya.org/opinion/servant-leadership-strategy/)
 - [Perfectionism Vs Servant Leadership](https://jyotirgamya.org/opinion/perfectionism-servant-leadership-balance/)
+- [What are the Benefits of Embracing Imperfections](https://jyotirgamya.org/opinion/embrace-imperfection-mental-well-being/)
