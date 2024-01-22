@@ -11,3 +11,4 @@
 - [What is the Servant Leadership Strategy](https://jyotirgamya.org/opinion/servant-leadership-strategy/)
 - [Perfectionism Vs Servant Leadership](https://jyotirgamya.org/opinion/perfectionism-servant-leadership-balance/)
 - [What are the Benefits of Embracing Imperfections](https://jyotirgamya.org/opinion/embrace-imperfection-mental-well-being/)
+- [How do you Build Trust in Servant Leadership](https://jyotirgamya.org/opinion/build-trust-servant-leadership/)
